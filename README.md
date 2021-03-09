@@ -1,2 +1,2 @@
 # ADA
-COLLEGE
+Submission to Sandeep sir
